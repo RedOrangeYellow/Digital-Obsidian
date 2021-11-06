@@ -1,6 +1,6 @@
 [[🌌 Our Solar System]]
 # Nature of Science: Heliocentric Model
-The nature of Science: Science is tentative. This means that Science develops overtime, with new theories or ideas becoming accepted, replacing the old [[Theory]] due to improvement in society and technology.
+The nature of [[Science]]: [[Science]] is tentative. This means that [[Science]] develops overtime, with new theories or ideas becoming accepted, replacing the old [[Theory]] due to improvement in society and technology.
 
 For example, the development of the heliocentric model had taken a long time to complete, and is still changing, with the latest change being Pluto being removed from the solar system because it was a dwarf planet.
 
