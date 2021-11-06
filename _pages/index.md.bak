@@ -1,0 +1,15 @@
+---
+layout: page
+title: Home
+id: home
+permalink: /
+---
+
+# Welcome! 
+This is the home page for all Maps of Contents
+
+<style>
+  .wrapper {
+    max-width: 46em;
+  }
+</style>
