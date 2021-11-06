@@ -1,0 +1,7 @@
+[[Slavery and the US Civil Rights Movement]]
+# Greensboro Sit-ins
+Four Negro students purchased a few items from the Greensboro Woolworths store in North Carolina on the afternoon of 1 February 1960. They then entered the lunch counter in the section reserved for whites and sat down. The white waitress refused to serve them. The manager of the store told his employees to simply ignore the students. They remained in their seats for two hours until the store closed. The following morning, a group of 30 students entered the same lunch counter and sat down. The sit ins continued daily. White students from Greensboro College joined them. Then the backlash began. Crowds of hostile white students began to abuse he protesters. The store manager finally closed the store, but a new non-violent of direct action had been discovered.
+
+Student sit-ins began to be held through North Carolina and the South. By April there were 50 000 participates They were characterized by a strict non-violent discipline. At Greensboro, a representative of the Congress of Racial Equality ([[CORE]]) began training sessions in non-violent action. Violence, however, did continue.
+
+The Greensboro sit-in continued, but it took six months before Negroes were served at the Woolworth's lunch counter. IN other towns, colored and 'white' signs came down as the sit-ins continued. 'Wade ins' and 'pray-ins' took place to desegregate beaches, pools, and churches. Much was achieved.

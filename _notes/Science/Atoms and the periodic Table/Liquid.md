@@ -1,0 +1,3 @@
+[[Matter]]
+# Liquid
+A liquid is a nearly incompressible fluid that fills the shape of the container it is placed in, but has a certain volume Liquid is made of tiny vibrating atoms that are full with kinetic [[⚡ Energy]], unlike [[solid]]s, but not as much as a [[💨 Gases]] does. A liquid has a definite volume but no definite shape. However, unlike a [[solid]], where the particles are packed closely together, a liquid's [[molecule]]s have the ability to roll over each other to fill gaps.

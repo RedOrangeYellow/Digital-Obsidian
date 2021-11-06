@@ -1,0 +1,6 @@
+[[Hitler's Rise to Power]]
+# Hitler's Actions
+### Hitler's Public Speaking Skills
+Hitler was well known as a Demagogue, a leader that played to the public's emotions to gain power for themselves. The people of Germany were in complete disarray, and Hitler had been able to restore order through giving the public what they wanted - someone to blame for the loss in the World War and forcing the treaty of Versailles onto them; the Jews were responsible. Hitler had claimed that they had betrayed and backstabbed the country during the war, hence the loss. Hitler was able to sway the larger crowd through emotions.
+### Hitler's Ideology
+Hitler's Ideology had been around for sometime. Many of the Germans that he spoke to also had anti-Semitic views. This would have already served as something that society could Hitler could have used to create friends. This also served as a foundation for many ideas that could have been shared, each with different values to Hitler. In truth, Hitler used a common view on society as a means to gain influence and power. 

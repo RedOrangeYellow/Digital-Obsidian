@@ -7,7 +7,11 @@ permalink: /
 
 # Welcome! 🌱
 This is the home page for all Maps of Contents:
- - Take a look at <span style="font-weight: bold">[[Your first note]]</span> to get started on your exploration.
+ - <span style="font-weight: bold">[[English]]</span>
+ - <span style="font-weight: bold">[[Maths]]</span>
+ - <span style="font-weight: bold">[[Humanities]]</span>
+ - <span style="font-weight: bold">[[Science]]</span>
+ 
 <style>
   .wrapper {
     max-width: 46em;

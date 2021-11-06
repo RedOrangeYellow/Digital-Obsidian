@@ -1,0 +1,3 @@
+[[Hitler's Rise to Power]]
+# The Reichstag Fire
+The Reichstag [[Fire]] was an attack on the Reichstag Building (Government Building). This attack was set into motion on Monday the 27th, February of 1933, exactly four weeks after Hitlers appointment as Chancellor of Germany. After the incident, the Nazi Party had declared that a Dutch Council Communist Part was the culprit. After this fateful incident, the Reichstag [[Fire]] Decree was passed, allowing the [[Nazi Party]] to declare all communist parties to be plotting against the government.

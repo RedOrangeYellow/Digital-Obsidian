@@ -1,0 +1,3 @@
+[[Matter]]
+#  Mass
+Mass is a measurement of a body. The SI Unit of Kg (Kilogram) is the base unit. Mass is not the same as [[Weight]] even though mass is often determined by measuring the object's [[Weight]] using a spring scale rather than a balance comparing it directly with known masses. An object on the [[Moon]] would weigh less than it does on Earth because of the lower gravity, but it would still have the same mass. This is because [[Weight]] is a force, while mass is the property that (along with gravity) determines the strength of this force.

@@ -1,0 +1,9 @@
+[[Slavery and the US Civil Rights Movement]]
+# Freedom Rides
+Another Campaign which in non-violent direct action was freedom rides organised by Student Non-violent Coordinated Committee ([[SNCC]]). Freedom riders set out to buses throughout the South the stopovers make use of the restrooms, waiting rooms, and restaurants reserved for whites. Although a Supreme Court in 1960 stated that Negro people were entitled to the same right the terminals as they had on direct action was still needed.
+
+The freedom rides began May 1961. Thirteen passenger whites and seven African Americans from Washington for North Carolina. There were many incidents of harm set against the riders in the various buses. With riots and mobs in Montgomery. This was enough for President Kennedy to send in marshals to protect the freedom riders. However, the troops had arrived too late, and they were met by a riot. This description of the freedom ride illustrated the courage and commitment these young people to the civil rights cause.
+
+Over a thousand students eventually participated in the campaign. Most were from the North and half of them were white. The freedom riders did achieve some success. In November 1961, the Interstate Commerce Commission issued new regulations to desegregate bus terminals.
+
+The [[SNCC]] (called 'Snick') emerged out of the student sit-ins of 1960. Their early work centered on the lunch counter discrimination by leaders quickly realized that poverty among Negroes prevented many real progresses in racial equality. By 1963, the [[SNCC]] joined other groups to push job and income issues and voter registration for Negros.
