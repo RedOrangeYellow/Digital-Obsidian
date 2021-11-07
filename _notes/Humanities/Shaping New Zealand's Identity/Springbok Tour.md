@@ -1,0 +1,17 @@
+[[Shaping New Zealand's Identity]]
+# Springbok Tour
+For 56 days in July, August and September 1981, New Zealanders were divided against each other in the largest civil disturbance seen since the 1951 waterfront dispute. More than 150,000 people took part in over 200 demonstrations in 28 centers, and 1500 were charged with offenses stemming from these protests.
+
+To some observers it might seem inconceivable that the cause of this unrest was the visit to New Zealand of the South African rugby team (the Springboks). Although not a major sport on a global scale, rugby had established itself not only as New Zealand’s number one sport but as a vital component in this country’s national identity. In many ways the playing of rugby took a back seat in 1981, and the sport suffered in the following years as players and supporters came to terms with the fallout from the tour.
+
+In South Africa before 1948 the white minority enjoyed a privileged position, reinforced by a number of laws and practices that ensured there was extensive segregation of the races. When Daniel Malan’s Nationalist Party came to power that year, this separation was intensified with a policy known as ‘apartheid’ (‘apartness’ in Afrikaans) that aimed to strictly divide the races.
+
+In 1968 the United Nations called for a sporting boycott as one way of putting pressure on the South African government. As rugby and cricket were the two main sports for white South Africans, the spotlight was bound to fall on New Zealand. When the All Blacks toured in 1970 they sent a multiracial team, not as a result of international pressure softening South African resolve, but because the South African government allowed Māori to travel as ‘honorary whites’.
+
+For some this was the last straw. Those opposed to contact with South Africa attacked the NZRFU for allowing Māori players to be demeaned, and they argued that by continuing contact, New Zealand was condoning apartheid. Moreover, by allowing Māori players to be treated in this way, we were allowing South African racial attitudes to infect our own society. Others, including many players, stressed that sport and politics should remain separate. Some, perhaps naively, argued that rugby contact with a multiracial country like New Zealand could promote change for the better in South Africa.
+
+The All Blacks accepted an invitation to tour South Africa in 1976, when world attention was fixed on the republic because of the Soweto riots. Hundreds were killed as the authorities ruthlessly suppressed protests. An All Blacks tour under such conditions was not only intolerable to many New Zealanders but also attracted international condemnation. Black African nations boycotted the 1976 Montreal Olympics in protest, firmly putting sport and politics back on the same stage.
+
+New Zealand’s international reputation had been damaged. Prime Minister Robert Muldoon, though, maintained that a free and democratic country could not restrict the rights of its citizens to travel overseas. He reiterated his belief that sport and politics should be kept separate.
+
+A Commonwealth Heads of Government meeting in 1977 discussed the South African question and unanimously adopted the , promising to ‘discourage’ contact and competition between their sportspeople and sporting organizations, teams or individuals from South Africa.

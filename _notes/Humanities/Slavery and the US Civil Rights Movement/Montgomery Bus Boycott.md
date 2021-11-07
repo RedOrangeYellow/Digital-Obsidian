@@ -1,6 +1,5 @@
 [[Slavery and the US Civil Rights Movement]]
 # Montgomery Bus Boycott
-           
 
 In Montgomery 1955, the civilians were still forced under Jim Crow Laws, and segregation on buses was one of them. The African Americans were forced to sit at the back of the bus, and if the bus was fill, they had to give up their seat if a white person did not have one and they wanted to sit. On December the first, 1955, Rosa Parks was coming home from work on the bus and sat at the front row of the colored section. When the white section of the bus was filled, the bus driver J. Fred Blake asked her and three others to vacant their seats. Although the others had left, Parks had stayed in her seat, and refused to give it up. She was arrested and fined $10, and $4 in court fees.
 

@@ -1,0 +1,3 @@
+[[Shaping New Zealand's Identity]]
+# Voyage to New Zealand
+The voyage to New Zealand was mostly dependent of luck. The rooms for sleeping (berths) were only $6\frac{1}{2}$ feet by 2 feet (6 meters by 2 meters). The hospital room was only 9 by 10 feet, and the doctor on board would loose twenty shillings for every death. Natural Light could only be access through a porthole on the ship, when there was bad weather, there would not be any natural light, leading to Rickets. The ship was crammed, therefore any sickness or disease would spread like wildfire.

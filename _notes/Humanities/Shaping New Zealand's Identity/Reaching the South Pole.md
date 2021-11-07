@@ -1,0 +1,3 @@
+[[Shaping New Zealand's Identity]]
+# Reaching the South Pole
+On 4 January 1958 Sir Edmund Hillary and his New Zealand party reached the South Pole. They were the first to reach it overland since Scott in 1912, and the first to do so in motor vehicles. The party set out for the Pole after laying food and fuel depots for the British crossing party of the Commonwealth Trans-Antarctic Expedition (TAE). It was an arduous journey - long hours were spent battling through sastrugi (wind-eroded snow ridges), soft snow and dangerous crevasses. But what is often remembered is Hillary's determination to proceed with the journey without the express permission of the TAE, and against the instructions of the committee coordinating New Zealand's contribution. 

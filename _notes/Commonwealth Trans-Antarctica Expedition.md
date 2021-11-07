@@ -1,0 +1,3 @@
+[[Shaping New Zealand's Identity]]
+# Commonwealth Trans-Antarctica Expedition
+[[Sir Edmund Hillary]] led the New Zealand component of the Commonwealth Trans-Antarctic Expedition (TAE) in 1955-58, under the overall command of the British explorer Dr Vivian Fuchs. The expedition successfully completed the first overland crossing of Antarctica, via the South Pole, on 2 March 1958. The New Zealanders supported the expedition by setting up Scott Base, and laying food and fuel depots for the British crossing party. Then, against the instructions of the Ross Sea Committee, Hillary led a ‘dash to the pole'. On 4 January 1958 they became the first party to reach the South Pole overland since Scott in 1912, and the first to reach it in motor vehicles. 

@@ -1,6 +1,6 @@
 [[⚛️ Atom]]
 # Sub Particles of an [[⚛️ Atom]]
-There are three components of the [[⚛️ Atom]]: the nucleus, the protons, and the neutrons. They each have different charges, +-0, +1, -1, respectively. The protons and the neutrons sit inside the nucleus of the [[⚛️ Atom]], with the electrons siting outside it. (Refer to diagram underneath)
+There are three components of the [[⚛️ Atom]]: the protons, the neutrons, and the electrons. They each have different charges, +-0, +1, -1, respectively. The protons and the neutrons sit inside the nucleus of the [[⚛️ Atom]], with the electrons siting outside it. (Refer to diagram underneath)
 
 ****
 ![[Pasted image 20211019124133.png]] This example shows a [[Bohr Model]] of an [[⚛️ Atom]] of helium.
